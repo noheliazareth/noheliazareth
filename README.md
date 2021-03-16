@@ -1,6 +1,7 @@
 <p>Hi, @noheliazareth here! </p>
 
-Getting the most out of my Java(script) <br>
+Nobody normal ever accomplished anything meaningful in this world 👽 <br>
+♨️ Java(script) <br>
 🥷🏽 Automation Ninja >>>  <br>
 👩🏽‍💻 Females in STEM >>> <br>
 Always ready to react.js when needed!
